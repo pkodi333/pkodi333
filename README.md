@@ -50,7 +50,7 @@ I'm seeking my next challenge—ideally in a data-focused role where I can help 
 - 💼 [LinkedIn →] https://www.linkedin.com/in/prashanti-kodi/
 - 📬 Email: prashanti.kodi97@gmail.com
 
-Thanks for stopping by — and if you like great insights, or just enjoy talking about customer journeys and click-through rates, let’s chat!
+Thanks for stopping by — and if you like great insights, or just enjoy talking about customer journeys, let’s chat!
 
 
 <!--
